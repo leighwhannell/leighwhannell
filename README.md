@@ -1,4 +1,4 @@
-## Hi there 👋
+![alt text](https://github.com/user-attachments/assets/e4732a91-ec12-4213-a720-6ada0ee37eac) ![alt text]()
 
 <!--
 **CHAINSHlPPING/CHAINSHlPPING** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
