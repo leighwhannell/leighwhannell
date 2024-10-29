@@ -1,5 +1,5 @@
 
-![](https://github.com/user-attachments/assets/a00674d2-5147-4674-b38d-6ec7c029b6b2)
+![](https://github.com/user-attachments/assets/9430eaa9-11a7-4d8f-87c4-a400c8319419)
 
 <!--
 **CHAINSHlPPING/CHAINSHlPPING** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
